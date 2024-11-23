@@ -1,2 +1,0 @@
-## Bilgi Toplumunun Temelleri
-
